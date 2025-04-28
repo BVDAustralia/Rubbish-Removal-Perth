@@ -93,7 +93,7 @@ Rubbish Removal Perth
 
 Watch the following videos for additional info :
 
-[https://youtu.be/I0aKc2Qw0\_M](https://www.google.com/url?q=https://youtu.be/I0aKc2Qw0\_M\&sa=D\&source=editors\&ust=1699864348775829\&usg=AOvVaw1O0-dbNcDpf-ktuQ04VEe-)
+[https://youtu.be/I0aKc2Qw0\_M](https://www.google.com/url?q=https://youtu.be/I0aKc2Qw0_M\&sa=D\&source=editors\&ust=1699864348775829\&usg=AOvVaw1O0-dbNcDpf-ktuQ04VEe-)
 
 ## RECOMMENDED RESOURCES
 
@@ -103,19 +103,19 @@ The list of resources and links we recommend you visit :
 
 [Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/drive/folders/1vmv6qKNkmjfR28uQGVGybqNNq4CjuKd7?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348776758\&usg=AOvVaw3ywQESqOfdQGE6yd8bvC8Z)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://www.swannrubbish.com/feed/\&sa=D\&source=editors\&ust=1699864348776957\&usg=AOvVaw0lx2lLc8IQAEGj6Io\_DsoR)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://www.swannrubbish.com/feed/\&sa=D\&source=editors\&ust=1699864348776957\&usg=AOvVaw0lx2lLc8IQAEGj6Io_DsoR)
 
 [Rubbish Removal Perth Articles](https://www.google.com/url?q=https://drive.google.com/drive/folders/1JfCuCZ2sr1fS8QdK4QppDp0QX3yLYiFS?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348777186\&usg=AOvVaw28xuBfiH7I1H-FYOKR0IYt)
 
-[Rubbish Removal Perth Photos](https://www.google.com/url?q=https://drive.google.com/drive/folders/1XcpYH8nbT\_x4FAsYLwlrzS8bO4qglitI?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348777411\&usg=AOvVaw3cM8vqRp9L\_pOYb8HqvdNZ)
+[Rubbish Removal Perth Photos](https://www.google.com/url?q=https://drive.google.com/drive/folders/1XcpYH8nbT_x4FAsYLwlrzS8bO4qglitI?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348777411\&usg=AOvVaw3cM8vqRp9L_pOYb8HqvdNZ)
 
 [Rubbish Removal Perth PDFs](https://www.google.com/url?q=https://drive.google.com/drive/folders/1w7COn64809JChdnWLDMdt-Rktby9JkaV?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348777653\&usg=AOvVaw21z6tXLmIt72dBK5xIi4z9)
 
-[Rubbish Removal Perth Slides](https://www.google.com/url?q=https://drive.google.com/drive/folders/1zwu66V9w1aCcXjx78hc53v-ZTRl-v3as?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348777878\&usg=AOvVaw3GyXl8WHjbenhRzB0c\_oNq)
+[Rubbish Removal Perth Slides](https://www.google.com/url?q=https://drive.google.com/drive/folders/1zwu66V9w1aCcXjx78hc53v-ZTRl-v3as?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348777878\&usg=AOvVaw3GyXl8WHjbenhRzB0c_oNq)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs\_b/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348778103\&usg=AOvVaw0Jebf7Sr2H2crwiJI9FjiI)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs_b/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348778103\&usg=AOvVaw0Jebf7Sr2H2crwiJI9FjiI)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1m\_FPhaz4BCVYECR71IprnvHxSbDROyhf/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348778320\&usg=AOvVaw3xk9oURa8l8EWNHPUOTvO8)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1m_FPhaz4BCVYECR71IprnvHxSbDROyhf/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348778320\&usg=AOvVaw3xk9oURa8l8EWNHPUOTvO8)
 
 [Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348778551\&usg=AOvVaw39k5eLzPLDAZBuBCaSlCt1)
 
@@ -123,15 +123,15 @@ The list of resources and links we recommend you visit :
 
 [Rubbish Removal Perth pubhtml](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/pubhtml\&sa=D\&source=editors\&ust=1699864348779009\&usg=AOvVaw0P6mgFTceID-xHTGShnJQR)
 
-[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/pub\&sa=D\&source=editors\&ust=1699864348779288\&usg=AOvVaw3fI9cnuL32NG16Wk1iE\_Ul)
+[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/pub\&sa=D\&source=editors\&ust=1699864348779288\&usg=AOvVaw3fI9cnuL32NG16Wk1iE_Ul)
 
 [Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/view\&sa=D\&source=editors\&ust=1699864348779525\&usg=AOvVaw2NGkAXsZCU0cuwnxwVMXqw)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/forms/d/1hT46zOIuXFZQx8XVFTGMSQvKhzIYzLSDx\_fd-Ichzcc/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348779757\&usg=AOvVaw26OA50pTRYoBxEGhXnvJ4I)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/forms/d/1hT46zOIuXFZQx8XVFTGMSQvKhzIYzLSDx_fd-Ichzcc/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348779757\&usg=AOvVaw26OA50pTRYoBxEGhXnvJ4I)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/drawings/d/1ks6XP24vkYjpOaAgHN0NrdWi3rkQqxsAFiDtoz93\_\_s/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348780013\&usg=AOvVaw0bKyZdgj\_zvMtkrqGW6s9P)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/drawings/d/1ks6XP24vkYjpOaAgHN0NrdWi3rkQqxsAFiDtoz93__s/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864348780013\&usg=AOvVaw0bKyZdgj_zvMtkrqGW6s9P)
 
-[CTA or Logo](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs\_b/view?usp%3Ddrivesdk\&sa=D\&source=editors\&ust=1699864348780252\&usg=AOvVaw1Sb8l-NUwivK895ChCdZgf)
+[CTA or Logo](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs_b/view?usp%3Ddrivesdk\&sa=D\&source=editors\&ust=1699864348780252\&usg=AOvVaw1Sb8l-NUwivK895ChCdZgf)
 
 [CTA or Logo - image link](https://www.google.com/url?q=https://swann-rubbish-removal.business.site/\&sa=D\&source=editors\&ust=1699864348780452\&usg=AOvVaw1NdBH5NifjZrkcD3icFsaL)
 
@@ -153,10 +153,10 @@ Visit our Website here :
 
 ## Images/Photos
 
-![](https://lh7-us.googleusercontent.com/5TaIGHnunaWxaO4wEVMgDXEm99lb0Ia\_H7RoWwnJzfB1qEq\_uQfNmFDKr5S9CZx5QkegkLMV6zbxhYFS0hLKHDkYbQeTrcxt2RKA7qs9H1qzNoXiS0qy5AsOkH1mQOBLXNlmCFSxuERvomGqZz0Y7GE)
+![](https://lh7-us.googleusercontent.com/5TaIGHnunaWxaO4wEVMgDXEm99lb0Ia_H7RoWwnJzfB1qEq_uQfNmFDKr5S9CZx5QkegkLMV6zbxhYFS0hLKHDkYbQeTrcxt2RKA7qs9H1qzNoXiS0qy5AsOkH1mQOBLXNlmCFSxuERvomGqZz0Y7GE)
 
-![](https://lh7-us.googleusercontent.com/RR0OeP\_xQTrpzPajd3qFWwggdQF4fa\_cYkScCeeapJcJDueiz4rsMUpVdJxwbcHPkLungtnR0rgFelwf2VkFTobl-j\_\_f0ZpdmkSj6oY6zgtkMiSuRqm4kGFcFvNhDfRYY0euyDBla828GEeqnxTwsg)
+![](https://lh7-us.googleusercontent.com/RR0OeP_xQTrpzPajd3qFWwggdQF4fa_cYkScCeeapJcJDueiz4rsMUpVdJxwbcHPkLungtnR0rgFelwf2VkFTobl-j__f0ZpdmkSj6oY6zgtkMiSuRqm4kGFcFvNhDfRYY0euyDBla828GEeqnxTwsg)
 
-![Rubbish Removal Perth](https://lh7-us.googleusercontent.com/\_GslvSR6pq1nR9qjrxt4N65psCdosNE9kDFUGO\_38BFuMO42TKXZbX63j91FiGmXgSHrmwq2TMrbsh-2KdaLjKsNqTMmkzYtYVA386cojrDKdEb1YXsCWyOw\_mNc6aVFJAr9Fjjz6ks4HqdzFnvh54Q)
+![Rubbish Removal Perth](https://lh7-us.googleusercontent.com/_GslvSR6pq1nR9qjrxt4N65psCdosNE9kDFUGO_38BFuMO42TKXZbX63j91FiGmXgSHrmwq2TMrbsh-2KdaLjKsNqTMmkzYtYVA386cojrDKdEb1YXsCWyOw_mNc6aVFJAr9Fjjz6ks4HqdzFnvh54Q)
 
 \

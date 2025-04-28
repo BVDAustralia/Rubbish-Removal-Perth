@@ -95,39 +95,39 @@ The list of resources and links we recommend you visit :
 
 [Rubbish Removal Perth MSFT](https://www.google.com/url?q=https://drive.google.com/drive/folders/1YI2AbEhVQcU3DnUB40CwQv0m8ihzFNQM?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650760632\&usg=AOvVaw1vey-kK9AILljGF55WaFo3)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1n\_W\_0GxeJZwojITEzphHBHHpy5C4bSM9/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650761141\&usg=AOvVaw1P8g5dUmLbwgKHFNtX-U6u)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1n_W_0GxeJZwojITEzphHBHHpy5C4bSM9/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650761141\&usg=AOvVaw1P8g5dUmLbwgKHFNtX-U6u)
 
 [Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/document/d/1pBnlMaNGCLqWXoXjvRBgI584VTZFfOgmoBchWupSdbI/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650761459\&usg=AOvVaw13J4tTXR0bxHQ9EN0u4ypk)
 
-[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/document/d/1pBnlMaNGCLqWXoXjvRBgI584VTZFfOgmoBchWupSdbI/pub\&sa=D\&source=editors\&ust=1699864650761731\&usg=AOvVaw0VkyBsLZnabgpF\_rC0M2jc)
+[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/document/d/1pBnlMaNGCLqWXoXjvRBgI584VTZFfOgmoBchWupSdbI/pub\&sa=D\&source=editors\&ust=1699864650761731\&usg=AOvVaw0VkyBsLZnabgpF_rC0M2jc)
 
-[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/document/d/1pBnlMaNGCLqWXoXjvRBgI584VTZFfOgmoBchWupSdbI/view\&sa=D\&source=editors\&ust=1699864650762007\&usg=AOvVaw1k\_\_H1L-lopW9y7x-pc42d)
+[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/document/d/1pBnlMaNGCLqWXoXjvRBgI584VTZFfOgmoBchWupSdbI/view\&sa=D\&source=editors\&ust=1699864650762007\&usg=AOvVaw1k__H1L-lopW9y7x-pc42d)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/presentation/d/1ohifLjZkfT\_2\_rXEC3kPzg\_cOBcQ1bmAU2-0Dthid1k/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650762279\&usg=AOvVaw3oZmRy419QTuc5FYojH4BN)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/presentation/d/1ohifLjZkfT_2_rXEC3kPzg_cOBcQ1bmAU2-0Dthid1k/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650762279\&usg=AOvVaw3oZmRy419QTuc5FYojH4BN)
 
-[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/presentation/d/1ohifLjZkfT\_2\_rXEC3kPzg\_cOBcQ1bmAU2-0Dthid1k/pub?start%3Dtrue%26loop%3Dtrue%26delayms%3D3000\&sa=D\&source=editors\&ust=1699864650762604\&usg=AOvVaw18jQoPOuKb2GFtwzuYMdWn)
+[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/presentation/d/1ohifLjZkfT_2_rXEC3kPzg_cOBcQ1bmAU2-0Dthid1k/pub?start%3Dtrue%26loop%3Dtrue%26delayms%3D3000\&sa=D\&source=editors\&ust=1699864650762604\&usg=AOvVaw18jQoPOuKb2GFtwzuYMdWn)
 
-[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/presentation/d/1ohifLjZkfT\_2\_rXEC3kPzg\_cOBcQ1bmAU2-0Dthid1k/view\&sa=D\&source=editors\&ust=1699864650762979\&usg=AOvVaw0qWGL-nzLEx8Gp9xFk\_1vk)
+[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/presentation/d/1ohifLjZkfT_2_rXEC3kPzg_cOBcQ1bmAU2-0Dthid1k/view\&sa=D\&source=editors\&ust=1699864650762979\&usg=AOvVaw0qWGL-nzLEx8Gp9xFk_1vk)
 
 [Rubbish Removal Perth](https://www.google.com/url?q=https://swann-rubbish-removal.business.site/?m%3Dtrue\&sa=D\&source=editors\&ust=1699864650763328\&usg=AOvVaw2pWeWG50berWAMLYUGeVaE)
 
 [Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/drive/folders/1vmv6qKNkmjfR28uQGVGybqNNq4CjuKd7?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650763604\&usg=AOvVaw3JgndKPvAh-VzxxXXRWNJ6)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://www.swannrubbish.com/feed/\&sa=D\&source=editors\&ust=1699864650763837\&usg=AOvVaw3sF8I\_Jz-dy\_EZqFt00AH8)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://www.swannrubbish.com/feed/\&sa=D\&source=editors\&ust=1699864650763837\&usg=AOvVaw3sF8I_Jz-dy_EZqFt00AH8)
 
-[Rubbish Removal Perth Articles](https://www.google.com/url?q=https://drive.google.com/drive/folders/1JfCuCZ2sr1fS8QdK4QppDp0QX3yLYiFS?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650764174\&usg=AOvVaw0\_lyM1Uc9XYKSbXYkOuYmQ)
+[Rubbish Removal Perth Articles](https://www.google.com/url?q=https://drive.google.com/drive/folders/1JfCuCZ2sr1fS8QdK4QppDp0QX3yLYiFS?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650764174\&usg=AOvVaw0_lyM1Uc9XYKSbXYkOuYmQ)
 
-[Rubbish Removal Perth Photos](https://www.google.com/url?q=https://drive.google.com/drive/folders/1XcpYH8nbT\_x4FAsYLwlrzS8bO4qglitI?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650764532\&usg=AOvVaw1LjPrpv-0HOJU5mO383JP7)
+[Rubbish Removal Perth Photos](https://www.google.com/url?q=https://drive.google.com/drive/folders/1XcpYH8nbT_x4FAsYLwlrzS8bO4qglitI?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650764532\&usg=AOvVaw1LjPrpv-0HOJU5mO383JP7)
 
 [Rubbish Removal Perth PDFs](https://www.google.com/url?q=https://drive.google.com/drive/folders/1w7COn64809JChdnWLDMdt-Rktby9JkaV?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650764846\&usg=AOvVaw38fhsfIClFzXP4dPDB2VJS)
 
-[Rubbish Removal Perth Slides](https://www.google.com/url?q=https://drive.google.com/drive/folders/1zwu66V9w1aCcXjx78hc53v-ZTRl-v3as?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650765208\&usg=AOvVaw1eCHe7qk-VTXYg9y\_fMiVe)
+[Rubbish Removal Perth Slides](https://www.google.com/url?q=https://drive.google.com/drive/folders/1zwu66V9w1aCcXjx78hc53v-ZTRl-v3as?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650765208\&usg=AOvVaw1eCHe7qk-VTXYg9y_fMiVe)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs\_b/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650765499\&usg=AOvVaw1OGSeMKaFnEf7MOMGp4pWS)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs_b/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650765499\&usg=AOvVaw1OGSeMKaFnEf7MOMGp4pWS)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1m\_FPhaz4BCVYECR71IprnvHxSbDROyhf/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650765771\&usg=AOvVaw3NcqgA19Z9HetzNDZ5Bg33)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://drive.google.com/file/d/1m_FPhaz4BCVYECR71IprnvHxSbDROyhf/view?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650765771\&usg=AOvVaw3NcqgA19Z9HetzNDZ5Bg33)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650766038\&usg=AOvVaw2PjXB\_r6lZEblK4qf2ECay)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650766038\&usg=AOvVaw2PjXB_r6lZEblK4qf2ECay)
 
 [Rubbish Removal Perth key](https://www.google.com/url?q=https://docs.google.com/spreadsheet/pub?key%3D1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY\&sa=D\&source=editors\&ust=1699864650766312\&usg=AOvVaw1DJFMRdLSrIicwaQ1ndjHR)
 
@@ -137,25 +137,25 @@ The list of resources and links we recommend you visit :
 
 [Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/view\&sa=D\&source=editors\&ust=1699864650767126\&usg=AOvVaw1fLZdX3v78hRPkqBMdHmGW)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/forms/d/1hT46zOIuXFZQx8XVFTGMSQvKhzIYzLSDx\_fd-Ichzcc/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650767402\&usg=AOvVaw0GPnRfdnwOovknRtX2ILGo)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/forms/d/1hT46zOIuXFZQx8XVFTGMSQvKhzIYzLSDx_fd-Ichzcc/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650767402\&usg=AOvVaw0GPnRfdnwOovknRtX2ILGo)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/drawings/d/1ks6XP24vkYjpOaAgHN0NrdWi3rkQqxsAFiDtoz93\_\_s/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650767658\&usg=AOvVaw2inSI9U0jFg32vikSYJT03)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/drawings/d/1ks6XP24vkYjpOaAgHN0NrdWi3rkQqxsAFiDtoz93__s/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650767658\&usg=AOvVaw2inSI9U0jFg32vikSYJT03)
 
-[CTA or Logo](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs\_b/view?usp%3Ddrivesdk\&sa=D\&source=editors\&ust=1699864650767924\&usg=AOvVaw2DSeDfOKpobLwTftSmR0a5)
+[CTA or Logo](https://www.google.com/url?q=https://drive.google.com/file/d/1fbGyT1yqP5P736FGEkgtQbP3ptSAPs_b/view?usp%3Ddrivesdk\&sa=D\&source=editors\&ust=1699864650767924\&usg=AOvVaw2DSeDfOKpobLwTftSmR0a5)
 
 [CTA or Logo - image link](https://www.google.com/url?q=https://swann-rubbish-removal.business.site/\&sa=D\&source=editors\&ust=1699864650768254\&usg=AOvVaw2TdXmWjETuUdXf3QM6dJap)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/document/d/1OR0kfs\_Vz4gd66D4qhGxkk5nA64rQWlYOWE\_AJ9lKBA/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650768528\&usg=AOvVaw3a1zP0uKWTWEFYpm0BljDe)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/document/d/1OR0kfs_Vz4gd66D4qhGxkk5nA64rQWlYOWE_AJ9lKBA/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650768528\&usg=AOvVaw3a1zP0uKWTWEFYpm0BljDe)
 
-[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/document/d/1OR0kfs\_Vz4gd66D4qhGxkk5nA64rQWlYOWE\_AJ9lKBA/pub\&sa=D\&source=editors\&ust=1699864650768793\&usg=AOvVaw3X58dyEhM7OqkgQwfYRE3k)
+[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/document/d/1OR0kfs_Vz4gd66D4qhGxkk5nA64rQWlYOWE_AJ9lKBA/pub\&sa=D\&source=editors\&ust=1699864650768793\&usg=AOvVaw3X58dyEhM7OqkgQwfYRE3k)
 
-[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/document/d/1OR0kfs\_Vz4gd66D4qhGxkk5nA64rQWlYOWE\_AJ9lKBA/view\&sa=D\&source=editors\&ust=1699864650769077\&usg=AOvVaw0JsMbdr1USD6lcEBTxwv\_h)
+[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/document/d/1OR0kfs_Vz4gd66D4qhGxkk5nA64rQWlYOWE_AJ9lKBA/view\&sa=D\&source=editors\&ust=1699864650769077\&usg=AOvVaw0JsMbdr1USD6lcEBTxwv_h)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/presentation/d/1WXH3PcpWQ40p1Jo5yrsIYIG6RETqKa-Fri4g\_5las6A/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650769350\&usg=AOvVaw27h-GmkmYbTdf\_-pwVh8pg)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://docs.google.com/presentation/d/1WXH3PcpWQ40p1Jo5yrsIYIG6RETqKa-Fri4g_5las6A/edit?usp%3Dsharing\&sa=D\&source=editors\&ust=1699864650769350\&usg=AOvVaw27h-GmkmYbTdf_-pwVh8pg)
 
-[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/presentation/d/1WXH3PcpWQ40p1Jo5yrsIYIG6RETqKa-Fri4g\_5las6A/pub?start%3Dtrue%26loop%3Dtrue%26delayms%3D3000\&sa=D\&source=editors\&ust=1699864650769631\&usg=AOvVaw1lZZPYXZXZrUsFXle2izdh)
+[Rubbish Removal Perth pub](https://www.google.com/url?q=https://docs.google.com/presentation/d/1WXH3PcpWQ40p1Jo5yrsIYIG6RETqKa-Fri4g_5las6A/pub?start%3Dtrue%26loop%3Dtrue%26delayms%3D3000\&sa=D\&source=editors\&ust=1699864650769631\&usg=AOvVaw1lZZPYXZXZrUsFXle2izdh)
 
-[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/presentation/d/1WXH3PcpWQ40p1Jo5yrsIYIG6RETqKa-Fri4g\_5las6A/view\&sa=D\&source=editors\&ust=1699864650769977\&usg=AOvVaw1-xV\_eEXA\_KMf5wUMQTbgC)
+[Rubbish Removal Perth view](https://www.google.com/url?q=https://docs.google.com/presentation/d/1WXH3PcpWQ40p1Jo5yrsIYIG6RETqKa-Fri4g_5las6A/view\&sa=D\&source=editors\&ust=1699864650769977\&usg=AOvVaw1-xV_eEXA_KMf5wUMQTbgC)
 
 [Calendar - Rubbish Removal Perth](https://www.google.com/url?q=https://calendar.google.com/calendar/embed?src%3De21776a8380ef5c57c662cb78c7d8e955c7f17216b40d1ff6c1967dabe5c36de@group.calendar.google.com\&sa=D\&source=editors\&ust=1699864650770381\&usg=AOvVaw0Nhvf1H5xqzDTg8JwRytBu)
 
@@ -163,15 +163,15 @@ The list of resources and links we recommend you visit :
 
 [Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DbmliNGo0MDl0aW9oOHBtZ3V0MGcybGZsbjAgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650771155\&usg=AOvVaw0LKFx-BcCbA9ecc6OldS7x)
 
-[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DMHI2amtzOXU0dTg0NWFyYWFtNXNwdWFsY2sgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650771619\&usg=AOvVaw1MELY\_vDbhrXeEcMSn\_tWJ)
+[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DMHI2amtzOXU0dTg0NWFyYWFtNXNwdWFsY2sgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650771619\&usg=AOvVaw1MELY_vDbhrXeEcMSn_tWJ)
 
 [Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DbGprazFoOHNxMDMxbGZwbWs2dnNrbDRlN2MgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650772029\&usg=AOvVaw0hpI7uSUXHAyROfkmHvigw)
 
-[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DMjBtZTY2MGhoNGlpa3VtazU2dGJyZjJlcm8gZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650772376\&usg=AOvVaw3HTmP3vE6JiR\_GJgDKW1Y7)
+[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DMjBtZTY2MGhoNGlpa3VtazU2dGJyZjJlcm8gZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650772376\&usg=AOvVaw3HTmP3vE6JiR_GJgDKW1Y7)
 
-[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DNzAxcWhuNmRyNG1nN3FnZmhtM25nZmJ0azQgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650772728\&usg=AOvVaw2\_pjZGxlnTt3nVlmN4mqd9)
+[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DNzAxcWhuNmRyNG1nN3FnZmhtM25nZmJ0azQgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650772728\&usg=AOvVaw2_pjZGxlnTt3nVlmN4mqd9)
 
-[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DOWRrbDNrdjdiamFvaWo2NHFlbDNocGg2NjggZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650773057\&usg=AOvVaw3wgvpyFGHm\_kq5Kd0GOeK7)
+[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DOWRrbDNrdjdiamFvaWo2NHFlbDNocGg2NjggZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650773057\&usg=AOvVaw3wgvpyFGHm_kq5Kd0GOeK7)
 
 [Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DZ3Uzb3M1NzRtcmNhcTEwcnEyNzYxZzh2bm8gZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650773395\&usg=AOvVaw3FQzSD8yWo66gqrvoWqhwp)
 
@@ -183,19 +183,19 @@ The list of resources and links we recommend you visit :
 
 [Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DdWUxdGNqY3VrZHNlcWVvbG1maTQwZGNvaG8gZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650774910\&usg=AOvVaw0wDJ6fy4zZvPHAJpWNG00R)
 
-[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DaWQ0YTJzZDJjODY0dXRiOXNmYml2dGR1dWcgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650775302\&usg=AOvVaw3zLemrfo\_9jgxz4fbiFLq1)
+[Calendar - Rubbish Removal Perth - Event](https://www.google.com/url?q=https://www.google.com/calendar/event?eid%3DaWQ0YTJzZDJjODY0dXRiOXNmYml2dGR1dWcgZTIxNzc2YTgzODBlZjVjNTdjNjYyY2I3OGM3ZDhlOTU1YzdmMTcyMTZiNDBkMWZmNmMxOTY3ZGFiZTVjMzZkZUBncm91cC5jYWxlbmRhci5nb29nbGUuY29t\&sa=D\&source=editors\&ust=1699864650775302\&usg=AOvVaw3zLemrfo_9jgxz4fbiFLq1)
 
-[Rubbish Removal Perth](https://www.google.com/url?q=https://youtu.be/I0aKc2Qw0\_M\&sa=D\&source=editors\&ust=1699864650775541\&usg=AOvVaw20OjJYgkeirr2MuKcXyfJf)
+[Rubbish Removal Perth](https://www.google.com/url?q=https://youtu.be/I0aKc2Qw0_M\&sa=D\&source=editors\&ust=1699864650775541\&usg=AOvVaw20OjJYgkeirr2MuKcXyfJf)
 
 [Sheet1](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit%23gid%3D0\&sa=D\&source=editors\&ust=1699864650775804\&usg=AOvVaw2ZnT8RJcHTXj40OU7v8Zpa)
 
-[Keywords](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit%23gid%3D1940180166\&sa=D\&source=editors\&ust=1699864650776146\&usg=AOvVaw0PY3UnKJDB4IoFg3\_DlWIe)
+[Keywords](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit%23gid%3D1940180166\&sa=D\&source=editors\&ust=1699864650776146\&usg=AOvVaw0PY3UnKJDB4IoFg3_DlWIe)
 
 [Content](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit%23gid%3D961832390\&sa=D\&source=editors\&ust=1699864650776475\&usg=AOvVaw2jDgbh1z1dvn3OnQk04xSG)
 
 [Calendar Events](https://www.google.com/url?q=https://docs.google.com/spreadsheets/d/1NuY8Oym5BoiIEXJREsSyq9mZvt-EHGVkh7kHSrEXGkY/edit%23gid%3D584380936\&sa=D\&source=editors\&ust=1699864650776760\&usg=AOvVaw1qG3sZ5cykSSHMkmNmrajW)
 
-[Top 5 Rubbish Removal Services in Perth](https://www.google.com/url?q=https://www.swannrubbish.com/top-5-rubbish-removal-services-in-perth/\&sa=D\&source=editors\&ust=1699864650777009\&usg=AOvVaw33roF6\_RZjrbehRPcvQtpz)
+[Top 5 Rubbish Removal Services in Perth](https://www.google.com/url?q=https://www.swannrubbish.com/top-5-rubbish-removal-services-in-perth/\&sa=D\&source=editors\&ust=1699864650777009\&usg=AOvVaw33roF6_RZjrbehRPcvQtpz)
 
 [Pros and Cons of Skip Bin Rental for Home Renovation – Rubbish Removal in Perth](https://www.google.com/url?q=https://www.swannrubbish.com/skip-bins-pros-and-cons/\&sa=D\&source=editors\&ust=1699864650777311\&usg=AOvVaw2cS7pp3Sd0DA71otgOmbym)
 
@@ -211,7 +211,7 @@ The list of resources and links we recommend you visit :
 
 [Swann Rubbish Removal: Taking a Step Forward with Meth House Cleanup Certification](https://www.google.com/url?q=https://www.swannrubbish.com/swann-rubbish-removal-taking-a-step-forward-with-meth-house-cleanup-certification/\&sa=D\&source=editors\&ust=1699864650778954\&usg=AOvVaw2kfCuHWFIssNfhAmf9OqMK)
 
-[Swann Rubbish Removal: Our Swift and Thorough Cleanup Transforms Kwinana’s Squatter Camp ](https://www.google.com/url?q=https://www.swannrubbish.com/swann-rubbish-clears-kwinana-squatter-camps/\&sa=D\&source=editors\&ust=1699864650779228\&usg=AOvVaw0M7lEi\_I\_dM7hh8xJ6qlE2)
+[Swann Rubbish Removal: Our Swift and Thorough Cleanup Transforms Kwinana’s Squatter Camp ](https://www.google.com/url?q=https://www.swannrubbish.com/swann-rubbish-clears-kwinana-squatter-camps/\&sa=D\&source=editors\&ust=1699864650779228\&usg=AOvVaw0M7lEi_I_dM7hh8xJ6qlE2)
 
 [Transforming Trash into Treasure: Affordable Rubbish Removal in Perth](https://www.google.com/url?q=https://www.swannrubbish.com/transforming-trash-into-treasure/\&sa=D\&source=editors\&ust=1699864650779466\&usg=AOvVaw1djFvDiJhCWrAH5lrOe1zp)
 
@@ -231,4 +231,4 @@ Visit our Website here :
 
 [https://swann-rubbish-removal.business.site/](https://www.google.com/url?q=https://swann-rubbish-removal.business.site/\&sa=D\&source=editors\&ust=1699864650780539\&usg=AOvVaw3o7escMYTz0Aqmari4qnOM)
 
-![](https://lh7-us.googleusercontent.com/Pp2KitacXl2vsGZCyKUQINOBTrupyhZWcaq-98LuLX6bmYNpCoGD053XmzIQa3Ymd6\_pF57gh-zdr\_zn44s-HV6mK44Ih28k0w-co4HEjMabY-Vr0xZJIRfPZP6-tLbdb4MthzWiCKGCNS-RJ2r0lNQ)
+![](https://lh7-us.googleusercontent.com/Pp2KitacXl2vsGZCyKUQINOBTrupyhZWcaq-98LuLX6bmYNpCoGD053XmzIQa3Ymd6_pF57gh-zdr_zn44s-HV6mK44Ih28k0w-co4HEjMabY-Vr0xZJIRfPZP6-tLbdb4MthzWiCKGCNS-RJ2r0lNQ)
